@@ -7,4 +7,3 @@ I am currently finishing my Computer Science Engineer degree. I am looking to sh
 I am always looking to improve, so if you see any improvements I would be very apreciated if you share them! 
 
 See you on the moon! 
-:lotus_position:
